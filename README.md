@@ -6,4 +6,7 @@
 -amo ouvir músicas🎵
 -sou católica✝️🕊️
 -gosto de sair:) 
-[alura.https://cursos.alura.com.br/user/]
+![]()
+sou estudante do alura [alura.https://cursos.alura.com.br/user/]
+pode entrar em contato comigo
+-@
